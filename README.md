@@ -1,2 +1,2 @@
-# in-ico
+# India (Icon Pack)
 India (Icon Pack)
